@@ -2,5 +2,5 @@
 Josefe Gylbyl Eowynn L. Rebueno
 LG **Brebeuf**
 
-![b34abf25dbf25d1a695ab8af5faab304](https://user-images.githubusercontent.com/122419068/212208985-5f519fd4-223b-4196-b8f6-826c0504ad76.jpg)
 
+![21f5ae50bd292f02e0de4e0ba0085f0f](https://user-images.githubusercontent.com/122419068/212817076-6b74feb6-5c88-4d20-a816-4e4911875f5d.jpg)
